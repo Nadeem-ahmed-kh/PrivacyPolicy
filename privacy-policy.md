@@ -1,6 +1,6 @@
 **Privacy Policy**
 
-Nectar Corp built the NectarApp app as a Free app. This SERVICE is provided by Nectar Corp at no cost and is intended for use as is.
+Dream Career built the Facebook page to provide training for IT Candidates.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
